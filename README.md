@@ -25,7 +25,7 @@ Here are some of the projects I’m currently working on or have completed:
 
 ## Get in Touch
 
-- 💬 **LinkedIn:** [Thando Vilakazi](https://www.linkedin.com/in/thando-vilakazi/)
+- 💬 **LinkedIn:** [Thando Vilakazi](https://www.linkedin.com/in/thando-vilakazi007/)
 - 📧 **Email:** thando.vilakazi007@gmail.com
 
 
